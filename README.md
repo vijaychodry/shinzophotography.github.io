@@ -1,0 +1,1 @@
+# shinzophotography.github.io
